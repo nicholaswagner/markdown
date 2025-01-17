@@ -1,7 +1,7 @@
 
 
 ### Relations
-- has a bastard half sister Martella Lotheed
+- has a bastard half sister [[Martella Lotheed]]
 
 ### Notables
 - at some point between the childrens adventure and the start of our campaign Bartleby became a Count

@@ -1,4 +1,4 @@
-Given to the party by Martella Lotheed
+Given to the party by [[Martella Lotheed]]
 
 |`pf2:1`||
 |`pf2:2`|Two actions|

@@ -3,4 +3,4 @@ buttered squid / squid butter, perhaps a dish of squid prepared with squid butte
 
 ( is a great connection for a rogue to have )
 
-Can provide Rhenquist Merosett with some stuff ...  Doug has details... maybe.
+Can provide [[Rhenquist Merosett]] with some stuff ...  Doug has details... maybe.

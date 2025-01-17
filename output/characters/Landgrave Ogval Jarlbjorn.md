@@ -1,4 +1,4 @@
 - a senator
-- from Ulfen
+- from [[Ulfen]]
 - a very _literal_ man
 - 

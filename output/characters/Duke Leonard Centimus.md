@@ -2,5 +2,5 @@
 
 Key Notes
 - invented his really cool wheelchair
-- the Dutchess Clament has a wheelchair based on his design
+- the [[Dutchess Clament]] has a wheelchair based on his design
 - 

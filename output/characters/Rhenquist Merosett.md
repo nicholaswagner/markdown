@@ -4,6 +4,6 @@
 
 
 Notes
-- Smokes tobacco cigaretts from Qadira
+- Smokes tobacco cigaretts from [[Qadira]]
 - doesn't have a great relationship with his brothers
 - 

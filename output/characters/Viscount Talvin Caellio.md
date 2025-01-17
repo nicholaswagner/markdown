@@ -2,7 +2,7 @@
 
 *a knight off defending borders or on a crusade or some such*
 
-Husband of Viscountess Tirri Kastner-Caleo
+Husband of [[Viscountess Tirri Kastner-Caleo]]
 
 Children:
 - Barrett he/him

@@ -12,12 +12,12 @@
  While others may assume he wastes his time in frivolous pursuits, Caritas has dedicated countless hours to mastering the blade. 
  
 
-Son of Vice Count René Malbec du Valle 
+Son of [[Vice Count René Malbec du Valle]] 
 
-Resides in the City of Zimar in the Sophra Prefecture of the Glorian Empire
-Attended the Gennaris Academy
+Resides in the [[City of Zimar]] in the Sophra Prefecture of the Glorian Empire
+Attended the [[Gennaris Academy]]
 
-Lineage House Zespire.canvas
+Lineage [[House Zespire.canvas]]
 
 core memories:
 - Arturo punching one of the Marosett boys right in the nuts while yelling "self defense punch!"
@@ -25,15 +25,15 @@ core memories:
 - watched the princess get pushed into the water feature
 - watched the prince get slammed into the Pegasus statue
 - is carried by René as the count is beating bartlebee as a result of the battle royale
-- Prince Carrius Stavian - deceased dies at age 16 in an accident
+- [[Prince Carrius Stavian - deceased]] dies at age 16 in an accident
 
 Notable Inventory Items
 - 1 smoke bomb
-- the folio of Museta Zespire
-	- written by Museta Zespire , it is essentially a planner.  She took an active role in planning senatorial stuff.  schedules, seating charts.  discovers several spell scrolls tucked into the back.  "blur", "confetti cloud", "charital urge", "haste", and "marvelous mount"
+- the folio of [[Museta Zespire]]
+	- written by [[Museta Zespire]] , it is essentially a planner.  She took an active role in planning senatorial stuff.  schedules, seating charts.  discovers several spell scrolls tucked into the back.  "blur", "confetti cloud", "charital urge", "haste", and "marvelous mount"
 
 
 ### Provenence
 ![](../assets/b73ba0c6d5ccb0a9df229bb17def959c.png)
-- Originally the sword of Vice Count René Malbec du Valle
-- now carried by Caritas Zespire though the original glowing runes have faded since his father's death
+- Originally the sword of [[Vice Count René Malbec du Valle]]
+- now carried by [[Caritas Zespire]] though the original glowing runes have faded since his father's death

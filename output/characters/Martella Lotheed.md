@@ -1,6 +1,6 @@
 ![](../assets/502a6b57818f241405bcd106219c2025.png)
 
-Household majordomo, spider, or enforcer depending on the situation for Princess Eutropia Stavian
+Household majordomo, spider, or enforcer depending on the situation for [[Princess Eutropia Stavian]]
 
 > walks in wearing a purple gown with a yellow gold veil over her head. instead of tassels there are pearls, with a necklace of sapphires.  She's clearly in a much better position than when we were children.
 
